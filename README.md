@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with my income to my parents
 - 💬 Ask me about What is your next plan
 - 📫 How to reach me: twitter:Avinash14359
-- 😄 Pronouns:
+- 😄 Pronouns:😄😄😄
 - ⚡ Fun fact:having with my friends are fun facts
 -->
